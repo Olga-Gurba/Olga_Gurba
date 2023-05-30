@@ -15,4 +15,6 @@
 
 Задачи:
 
-1.
+1. https://docs.google.com/spreadsheets/d/1j57wbUqv8crV2HPPs4cl26sywZWTYmoE/edit#gid=1211772839
+2. 
+
